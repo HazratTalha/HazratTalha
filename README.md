@@ -3,9 +3,9 @@
 
 👀 I’m interested in security systems, technology, and learning new things.
 
-🌱 I’m currently learning advanced English language skills and enhancing my expertise in security systems.
+🌱 I’m currently learning advanced enhancing my expertise in security systems.
 
-💞️ I’m looking to collaborate on security-related projects and CCTV review processes.
+💞️ I’m looking to collaborate on security-related projects.
 
 📫 How to reach me: You can reach me via email or on my professional platforms.
 
